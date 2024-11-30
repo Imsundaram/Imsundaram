@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **UI/UX**
 
-- 📫 How to reach me **imsundaram@27gmail.com**
+- 📫 How to reach me **imsundaram27@gmail.com**
 
 - ⚡ Fun fact **I think i am funny**
 
